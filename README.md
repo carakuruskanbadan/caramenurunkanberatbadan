@@ -40,8 +40,11 @@ Latihlah dirimu untuk meniadakan memakan makanan yang tidak perlu.
 Gerak badan yag terbaik ialah berjalan kaki, dengan berjalan kaki akan membantu untuk membakar lebih banyak kalori yang tidak diperlukan.
 
 5.Makan dengan teratur
+
 6.Jangan tahan lapar lama-lama
+
 7.Jangan lupa sarapan
+
 8. <a href="http://www.bugarfit.com/1328/sayuran-dan-buah-buahan-terbaik-hasilkan-perut-lebih-datar.html">Makanlah lebih banyak sayuran dan buah-buahan</a>
 
 # Cara Menghitung Berat Badan Ideal
